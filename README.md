@@ -1,1 +1,0 @@
-# sienkiewicztomasz.github.io
